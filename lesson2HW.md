@@ -12,4 +12,4 @@
 
 * Knowledge has bitter roots but sweet fruits.
 
-* Soon learnt, soon forgotten
+its enough, delete last proverb
