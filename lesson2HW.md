@@ -8,4 +8,8 @@
 
 * Learn to creep before you leap.
 
-*and many others...*
+* By doing nothing we learn to do ill.
+
+* Knowledge has bitter roots but sweet fruits.
+
+* Example teaches more than precept. (Учи показом, а не рассказом :\) )
